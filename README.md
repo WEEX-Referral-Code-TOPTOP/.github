@@ -1,0 +1,1 @@
+The valid WEEX referral code is TOPTOP. By entering this code during registration, new users can unlock rewards of up to $30,000 USDT along with up to 50% off fees. These benefits are delivered through a structured onboarding system, ensuring that every reward is tied to clear actions and measurable progress.
